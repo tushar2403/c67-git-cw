@@ -1,1 +1,1 @@
-One day, a fox became very hungry as he went to search for some food. He searched high and low, but couldn’t find something that he could eat.
+One day, a fox became very hungry as he went to search for some food. He searched high and low, but couldn’t find something that he could eat.Finally, as his stomach rumbled, he stumbled upon a farmer’s wall. At the top of the wall, he saw the biggest, juiciest grapes he’d ever seen. 
